@@ -1,1 +1,1 @@
-This iZ our bussiness where we have multiple companies running on different areas
+This iT our bussiness where we have multiple companies running on different areas
